@@ -1,3 +1,7 @@
 # fork
 
-readmefile
+
+
+알차고 친절한 강의 감사합니다!
+I SEE...
+
